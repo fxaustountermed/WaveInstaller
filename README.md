@@ -1,6 +1,6 @@
-
-![image](https://github.com/function0x260edd/WaveInstaller/assets/147672803/8e1fef8a-9ff1-455d-931c-d67fa6c567c2)Wave Installer Beta Download
 Cracked by Fxausto
+![image](https://github.com/function0x260edd/WaveInstaller/assets/147672803/8e1fef8a-9ff1-455d-931c-d67fa6c567c2)Wave Installer Beta Download
+
 
 Experience Wave, the best scripting tool on the big screen and harness the unparalleled power it offers. Dive into the evolution, not just as an observer, but as a participant riding the crest of innovation. With advanced scripting capabilities and superior performance, Wave invites you to immerse yourself fully and ride the wave of the future.
 
