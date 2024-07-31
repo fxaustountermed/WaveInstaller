@@ -1,5 +1,5 @@
 Cracked by Fxausto
-Updated July 29th
+Updated July 30th!
 Old Github Termed [Here](https://github.com/Faxuasto/WaveBeta/tree/main)
 
 
